@@ -1,2 +1,2 @@
-# rithik-maria-wedding
+# Rithik-Maria-Wedding
 wedding
